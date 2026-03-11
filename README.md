@@ -1,4 +1,4 @@
-# hi, I'm Ammar Adam👋
+# hi, I'm Ammar👋
 
 18 · CS and Finance @ UWaterloo · Building things in fintech and AI
 
