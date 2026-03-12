@@ -1,5 +1,7 @@
 # hi, I'm Ammar👋
 
-18 · CS and Finance @ UWaterloo · Building things in fintech and AI
+18 · cs & finance @ uwaterloo · building in fintech and ai
 
-organizer @ hack the north techyon · partnerships @ waterloo venture group · associate @ ace consulting group 
+organizer @ hack the north techyon · partnerships @ waterloo venture group
+
+trying new things...
