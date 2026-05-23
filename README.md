@@ -2,6 +2,6 @@
 
 18 · cs & finance @ uwaterloo · building in fintech and ai
 
-organizer @ hack the north techyon · partnerships @ waterloo venture group
+organizer @ hack the north / waterloo tech week · partnerships @ waterloo venture group
 
 trying new things...
