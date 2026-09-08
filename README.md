@@ -1,7 +1,5 @@
 # hi, I'm Ammar👋
 
-18 · cs & finance @ uwaterloo · building in fintech and ai
+19 · cs & finance @ uwaterloo · exploring new things...
 
-organizer @ hack the north / waterloo tech week · partnerships @ waterloo venture group
-
-trying new things...
+organizer @ hack the north / waterloo tech week · partnership innovation lead @ waterloo venture group
